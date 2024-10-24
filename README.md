@@ -1,2 +1,0 @@
-# baru.github.io
-puss
